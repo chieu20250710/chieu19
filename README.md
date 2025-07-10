@@ -10,4 +10,4 @@
 
 这些平台专注于熟妇人妻中文字幕无码不卡资源，提供丰富多样的国产精品精品内容，更新及时，分类明确。每个视频页面详细介绍影片时长、演员及清晰度，支持高清流畅播放，并根据网络情况自动调整画质，确保观看顺畅。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/chieu20250710/chieu19 ）</span>
